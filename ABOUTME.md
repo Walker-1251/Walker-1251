@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @Walker-1251
+- 👀 I’m interested in Game Developing
+- 🌱 I’m currently studying 12
+- 💞️ I’m looking for a programming partner
+- 📫 Reach me at discord : <Walker#5080> text me with this caption <response from GitHub>
+- 🛠️ Founder of Hashtag.devs
+- 🌐 Website: <will be updated soon>
+- 🤝 Partnership of our company is currently closed
+- ⛏️ Minecraft Player (Fav server: quantum-mc.net)
+- ♂️ Male..  
+- 🌟 DM for more info
